@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Nobita006
+- 👋 Hi, I’m Sayan Das
 - 👀 I’m interested in trying out new things
 - 🌱 I’m currently learning different programing languages.
 - 📫 How to reach me at sayandas001s@gmail.com
